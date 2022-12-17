@@ -1,4 +1,5 @@
 ## 1) Methodology
+![WhatsApp Image 2022-12-17 at 6 25 16 PM](https://user-images.githubusercontent.com/64866117/208242977-62dd76a2-466a-4347-ae69-1e69a0e8505d.jpeg)
 
 
 ## 2)Description
